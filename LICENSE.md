@@ -1,4 +1,4 @@
-
+ultimate MindManager for Windows Integration | attachments + priority-markers is the best MindManager for Windows integration, featuring attachments and priority-markers.
 
 
 
